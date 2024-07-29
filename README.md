@@ -8,3 +8,26 @@ Although I hated it every step of the way, here is my finished assets that anyon
 ## Credits
 I have to give credits to itch.io for inspiring me. 
 Thats all :)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Mr Tabuteau if you see this, make sure you let me know. 
